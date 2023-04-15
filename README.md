@@ -1,0 +1,2 @@
+# Fuck_My_Life
+HOW DO YOU FUCKING DIE
